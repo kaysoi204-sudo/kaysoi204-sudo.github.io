@@ -1,11 +1,11 @@
 <img src="![568294255_1570928127602033_37263286785602070_n](https://github.com/user-attachments/assets/bd62d166-00f8-404f-8545-0dce7afed5b5)
-" alt="TDO Photo" align="left" width="30%"/>
+" alt="TDO Photo" align="right" width="30%"/>
 # _Thandar Oo,Tahn-dah Oo
 > Payap University, Department of Hospitality Industry Management<br />
 > Supranee Dormitory, 31 Moo 1 Tambon Nong Pa Khrang 50000, Meaung Chiang Mai, Thailand<br />
 # _Contact Information
-> phone - 0617389737 />
-> email - kaysoi204@gmail.com />
+> phone - 0617389737
+> email - kaysoi204@gmail.com
 # Purpose 
 * Highly motivated Hospitality Management student who seeking an F&B internship to transform core academic training into practical operational excellence. Eager to apply proficiency in guest relations, inventory control, and service management to immediately enhance team efficiency and uphold exceptional customer service standards
 
