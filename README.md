@@ -1,9 +1,8 @@
-<img src="![568294255_1570928127602033_37263286785602070_n](https://github.com/user-attachments/assets/bd62d166-00f8-404f-8545-0dce7afed5b5)
-" alt="TDO Photo" align="right" width="30%"/>
-# _Thandar Oo,Tahn-dah Oo
+<img src="![568294255_1570928127602033_37263286785602070_n](https://github.com/user-attachments/assets/bd62d166-00f8-404f-8545-0dce7afed5b5" alt="TDO Photo" align="right" width="30%"/>
+# Thandar Oo,Tahn-dah Oo
 > Payap University, Department of Hospitality Industry Management<br />
 > Supranee Dormitory, 31 Moo 1 Tambon Nong Pa Khrang 50000, Meaung Chiang Mai, Thailand<br />
-# _Contact Information
+# Contact Information
 > phone - 0617389737
 > email - kaysoi204@gmail.com
 # Purpose 
