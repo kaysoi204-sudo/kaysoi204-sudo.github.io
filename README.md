@@ -1,2 +1,2 @@
-# kaysoi204-sudo.github.io
+# Thandar Oo
 my cv
