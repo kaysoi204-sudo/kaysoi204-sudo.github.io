@@ -1,4 +1,4 @@
-<img src="![568294255_1570928127602033_37263286785602070_n](https://github.com/user-attachments/assets/bd62d166-00f8-404f-8545-0dce7afed5b5"alt="TDO Photo" align="right" width="30%"/>
+<img src="http://kaysoi204-sudo.github.io/img/" alt="TDO Photo" align="right" width="30%"/>
 
 # Thandar Oo,Tahn-dah Oo
 > Payap University, Department of Hospitality Industry Management<br />
