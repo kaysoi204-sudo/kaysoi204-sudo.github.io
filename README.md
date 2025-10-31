@@ -38,8 +38,8 @@
 * Certificate of Youth Leadership — JCI Thailand
 
 ## Connect with me
-* Github -
-* Facebook - 
+* Github - <a href="https://github.com/kaysoi204-sudo/kaysoi204-sudo.github.io.git">GitHub<a/>
+* Facebook - <a href="https://web.facebook.com/?_rdc=1&_rdr#">Facebook<a/> 
 
 
 
