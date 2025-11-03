@@ -1,4 +1,4 @@
-I<img src="568294255_1570928127602033_37263286785602070_n.jpg" align="right" width="30%">
+<img src="568294255_1570928127602033_37263286785602070_n.jpg" align="right" width="30%">
 
 # Thandar Oo, (Tahn-dah Oo)
 > Payap University, Department of Hospitality Industry Management<br />
