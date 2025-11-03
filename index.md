@@ -9,9 +9,7 @@
 * email - kaysoi204@gmail.com
 
 ## Purpose 
-
-<div style="text-align: justify;">
-Hiighly motivated Hospitality Management student and former DISP scholar with a strong academic background who seeking an F&B internship to transform core academic training into practical operational excellence. Eager to apply proficiency in guest relations, inventory control, and service management to immediately enhance team efficiency and uphold exceptional customer service standards
+* Hiighly motivated Hospitality Management student and former DISP scholar with a strong academic background who seeking an F&B internship to transform core academic training into practical operational excellence. Eager to apply proficiency in guest relations, inventory control, and service management to immediately enhance team efficiency and uphold exceptional customer service standards
 
 ## Education
 * Bachelor of Business Administrastion - graduate in 2027 - Payap University  
