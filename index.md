@@ -1,4 +1,4 @@
-<img src="568294255_1570928127602033_37263286785602070_n.jpg" align="right" width="30%">
+I<img src="568294255_1570928127602033_37263286785602070_n.jpg" align="right" width="30%">
 
 # Thandar Oo, (Tahn-dah Oo)
 > Payap University, Department of Hospitality Industry Management<br />
@@ -9,6 +9,7 @@
 * email - kaysoi204@gmail.com
 
 ## Purpose 
+<div style="text-align: justify;">I
 * Highly motivated Hospitality Management student and former DISP scholar with a strong academic background who seeking an F&B internship to transform core academic training into practical operational excellence. Eager to apply proficiency in guest relations, inventory control, and service management to immediately enhance team efficiency and uphold exceptional customer service standards
 
 ## Education
